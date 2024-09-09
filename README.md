@@ -1,2 +1,2 @@
-# HatGamePlus
+------>https://jhbbjhafhash.github.io/HatGamePlus/<------
  
